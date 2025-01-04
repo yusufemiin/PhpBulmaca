@@ -21,8 +21,8 @@ Projede kullanılan başlıca teknolojiler şunlardır:
 
 ## Hesaplarım
 
-Github [click](https://github.com/yusufemiin) !
+Github [click](https://github.com/yusufeminirki) !
 
-LinkedIn [click](https://www.linkedin.com/in/yusufeminırkı/) !
+LinkedIn [click](https://www.linkedin.com/in/yusufeminirki/) !
 
 
